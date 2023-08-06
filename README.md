@@ -1,1 +1,0 @@
-# fintechmodule19challenge
